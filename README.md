@@ -18,8 +18,8 @@
 
 https://youtu.be/84Tq-eAJIk4?list=RD84Tq-eAJIk4
 
-[![Pink Floyd actua en Acapulco](img/acapulco_la_nuit.webp)](https://youtu.be/84Tq-eAJIk4?list=RD84Tq-eAJIk4)
+[![Pink Floyd actua en Acapulco](img/acapulco_la_nuit.webp)](https://youtu.be/ntmcfEwXoKY)
 
-[Acapulco](https://youtu.be/ntmcfEwXoKY)
+[Acapulco La Nuit](https://youtu.be/ntmcfEwXoKY)
 
 <https://www.pinkfloyd.com/home>
